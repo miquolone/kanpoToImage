@@ -1,6 +1,5 @@
 oootes2
 oo
-o
 tes
 o
 o
